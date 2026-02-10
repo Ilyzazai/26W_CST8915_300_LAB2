@@ -1,7 +1,7 @@
 # Lab 2 – CST8915
 
 ## Youtube Video
-
+https://www.youtube.com/watch?v=X64DsM6YIVY
 
 ---
 
